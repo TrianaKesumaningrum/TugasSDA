@@ -1,2 +1,0 @@
-# TugasSDA
-TrianaG1A021068
